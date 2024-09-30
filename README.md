@@ -1,7 +1,7 @@
 ━━━━━━━━━━━━━━━━━━━━━━━
 <p align="left">
     
-🇮🇳 Radhe Radhe
+𝗪𝗘𝗟𝗖𝗢𝗠𝗘 𝗧𝗢 𝗠𝗬 𝗠𝗨𝗦𝗜𝗖 𝗥𝗘𝗣𝗢
 
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
@@ -9,17 +9,17 @@
 </p>
 
 <h2 align="center">
-    ─「 𝐑𝐈𝐒𝐇𝐔  𝗠𝗨𝗦𝗜𝗖 」─
+    ─「 𝗡𝗘𝗫𝗨  𝗠𝗨𝗦𝗜𝗖 」─
 
 ★ 𝙷𝙴𝚁𝙾𝙺𝚄 + 𝚅𝙿𝚂 ★
 </h2>
-<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=♦𝙳𝙴𝙿𝙻𝙾𝚈+𝙾𝙽+𝙷𝙴𝚁𝙾𝙺𝚄♦;♨️+𝙽𝙾+𝙷𝙴𝚁𝙾𝙺𝚄+𝙱𝙰𝙽+𝙸𝚂𝚂𝚄𝙴+𝙰𝙻𝚂𝙾+𝚅𝙿𝚂+𝙳𝙴𝙿𝙻𝙾𝚈+📍+𝙿𝚁𝙴𝚂𝙴𝙽𝚃;🎭+𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈+𝐑𝐈𝐒𝐇𝐔+🎭">
+<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=♦𝙳𝙴𝙿𝙻𝙾𝚈+𝙾𝙽+𝙷𝙴𝚁𝙾𝙺𝚄♦;♨️+𝙽𝙾+𝙷𝙴𝚁𝙾𝙺𝚄+𝙱𝙰𝙽+𝙸𝚂𝚂𝚄𝙴+𝙰𝙻𝚂𝙾+𝚅𝙿𝚂+𝙳𝙴𝙿𝙻𝙾𝚈+📍+𝙿𝚁𝙴𝚂𝙴𝙽𝚃;🎭+𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈+𝗡𝗘𝗫𝗨+🎭">
 
 <p align="center">
     <img src="https://envs.sh/bJh.jpg">
 </p>
 
-**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [𝄟ॐ❥𝗧𝗚 𝗕𝗢𝗧❥𝄟⃟🥀](https://t.me/VIP_MUSIC_VC_BOTI)**
+**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [𝄟ॐ❥𝗧𝗚 𝗢𝗪𝗡𝗘𝗥❥𝄟⃟🥀](https://t.me/NEXUXMANAGER)**
 
 <img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=⚠️𝗙𝗢𝗥𝗞+𝗧𝗛𝗜𝗦+𝗥𝗘𝗣𝗢+𝗙𝗜𝗥𝗦𝗧𝗟𝗬⚠️">
 
@@ -39,7 +39,7 @@
 
 <img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=⚠️𝐈𝐟+𝐀𝐧𝐲+𝐄𝐫𝐫𝐨𝐫+𝐓𝐡𝐞𝐧+𝐒𝐞𝐧𝐝+𝐄𝐫𝐫𝐨𝐫+𝐈𝐧+𝐃𝐦+...">
 <p align="center">
-    <a href="https://telegram.me/rishu1286">
+    <a href="https://telegram.me/NEXUXMANAGER">
         <img src="https://img.shields.io/badge/-☆𝐃𝐌 𝐑𝐈𝐒𝐇𝐔☆-blue.svg?style=for-the-badge&logo=Telegram">
     </a>
 </p>
